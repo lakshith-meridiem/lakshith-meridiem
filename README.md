@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @lakshith-meridiem
+- 👋 Hi, I’m @lakshith-meridium
 - 👀 I’m interested in nothing and this is an office account!
